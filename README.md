@@ -4,7 +4,7 @@
 
 - i love c and c++ 
 - i hate high level 
-- you can hire me for free i just like to code ngl
+- you can hire me for free (i hate bimbows btw)
 
 
 
