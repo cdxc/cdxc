@@ -1,6 +1,4 @@
-## Hello there 
-
-------------
+# Hello there 
 
 #### gnu/linux 4 life 💫
 
