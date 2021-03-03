@@ -2,9 +2,9 @@
 
 #### gnu/linux 4 life 💫
 
-- i love c and c++ 
+- i love low lvl
 - i hate high level 
-- you can hire me for free (i hate bimbows btw)
+- you can hire me for free (bimbows suck btw)
 
 
 
